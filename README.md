@@ -118,13 +118,35 @@ Traditional matrimonial systems are either manual or lack personalization and mo
 Shaadi.org.pk offers a modern, personalized, and scalable solution for matchmaking that surpasses limitations of existing platforms, ensuring both usability and security through structured modules and technologies.
 
 PICTURES
+
+
+
 ![image](https://github.com/user-attachments/assets/cec9421a-039f-4f32-9d10-dc5aace10600)
+
+
 ![image](https://github.com/user-attachments/assets/92475030-7057-42f6-a51b-54d91575e4d9)
+
+
 ![image](https://github.com/user-attachments/assets/23dc8984-bac9-401e-ad3a-fcb7549894c6)
+
+
 ![image](https://github.com/user-attachments/assets/fd1a7b73-3508-4635-a9ab-8fc25c2cb764)
+
+
 ![image](https://github.com/user-attachments/assets/7ccd482a-ce5a-42c5-88c6-1a7bb1beb842)
+
+
 ![image](https://github.com/user-attachments/assets/426b90a8-6eac-46db-bc4d-338cebdbc9ee)
+
+
 ![image](https://github.com/user-attachments/assets/c90890d2-d734-4f80-8906-2a9d1b2bc912)
+
+
 ![image](https://github.com/user-attachments/assets/d59e9839-9c61-4f2a-80ba-96a02659ee9e)
+
+
 ![image](https://github.com/user-attachments/assets/05165182-9528-4bc5-9992-fe8e74166e1e)
+
+
+
 ![image](https://github.com/user-attachments/assets/ca67cce0-5250-4617-94a5-dc550502a693)
